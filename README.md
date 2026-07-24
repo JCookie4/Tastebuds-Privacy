@@ -55,4 +55,4 @@ If we make material changes to this policy, we will update the date above and, w
 
 ## Contact
 
-Questions or requests (including data deletion): **[YOUR CONTACT EMAIL]**
+Questions or requests (including data deletion): jwcook192@gmail.com
